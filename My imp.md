@@ -1,0 +1,1 @@
+My Imp has superuser powers, in my mind. She can remember everything I have ever experienced in objective details. She can travel to all the corners of my mind accessing every facility I have, even those I do not know about. 
